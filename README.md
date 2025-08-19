@@ -278,7 +278,7 @@ people identify their Top 5 strengths from a list of 38 domains and suggests pra
 apply them in education, career, relationships and personal growth. By integrating insights from
 positive psychology with user-friendly reporting, the test aims to democratise self-awareness and
 inspire strengths-based living. We invite readers to take the test and begin their journey toward a
-more fulfilling and resilient life: https://www.personality - quizzes.com/strengths - test - quiz.
+more fulfilling and resilient life: https://www.personality-quizzes.com/strengths-test-quiz
 References
 1. Bromley, E., Johnson, J. G., & Cohen, P. (2006). Personality strengths in adolescence
 and decreased risk of developing mental health problems in early adulthood.
